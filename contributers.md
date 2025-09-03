@@ -1,3 +1,3 @@
 # Contributors
 
-- Aishwarya MC
+- Aishwarya M C
